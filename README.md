@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @JordannLeigh
+- 👀💻 I’m interested in collaborating with anyone in the field of Software Engineering
+- 👩‍💻👾 I’m currently learning Software Engineering operating as a beginner 😖
+- 🌱Entry level / Junior Level coder and Software Engineeer🌱
