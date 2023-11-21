@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @JordannLeigh
 - Entry level / Junior Level Programmer 👩‍💻👾
-- I am uncontrollably quick on my feet 😝 Some might say Programming is adhd's cryptonite
+- I am uncontrollably coherant and thorough 😝 Some might say Programming is adhd's cryptonite
 - I am dedicated and motivated to break into the world of tech where my coherence and uniformity will be appreciated, finally!
