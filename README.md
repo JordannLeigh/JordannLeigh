@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @JordannLeigh
-- 👀💻 I’m interested in collaborating with anyone in the field of Software Engineering
-- 👩‍💻👾 I’m currently learning Software Engineering operating as a beginner 😖
-- 🌱Entry level / Junior Level coder and Software Engineeer🌱
+- Entry level / Junior Level Programmer 👩‍💻👾
+- I am uncontrollably quick on my feet 😝 Some might say Programming is adhd's cryptonite
+- I am dedicated and motivated to break into the world of tech where my coherence and uniformity will be appreciated, finally!
